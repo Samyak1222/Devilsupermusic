@@ -1,9 +1,9 @@
 <h2 align="center">
-    ──「 ASHWANI ダ MUSIC 」──
+    ──「 ⚡DEVIL MUSIC⚡🫧 」──
 </h2>
 
 <p align="center">
-  <img src="http://telegra.ph/file/da67bb071fac5b01a5c8d.jpg">
+  <img src="https://telegra.ph/file/8bfded5f818dc3c95670e.jpg">
 </p>
 
 <p align="center">
